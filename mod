@@ -1,4 +1,3 @@
-minus_de_fox
 AmtrakFlareon
 SIRA-Prime
 kalite
