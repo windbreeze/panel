@@ -7,4 +7,3 @@ Com Midnight
 Betty The Bat
 nightmarestar_1
 KakashiFlame
-Rurufox24
