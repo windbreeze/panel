@@ -6,7 +6,6 @@ AdmiralMidnight
 Betty The Bat
 Nightmarestar_1
 KakashiFlame
-dantdmjr67 930b
 Hyenafr
 Naafiri
 Kitarra_Fox ΘΔ
