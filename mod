@@ -1,6 +1,6 @@
 -	minus_de_fox
 AmtrakFlareon
-TatumTheTrans
+VelvetValery
 kalite
 AdmiralMidnight
 Betty The Bat
