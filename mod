@@ -1,11 +1,10 @@
--	minus_de_fox
-AmtrakFlareon
-VelvetValery
 AdmiralMidnight
+AmtrakFlareon
 Betty The Bat
-Nightmarestar_1
 KakashiFlame
-Naafiri
 Kitarra_Fox ΘΔ
-Pyromancer212VR
 Moca_Awtter_
+Naafiri
+Nightmarestar_1
+Pyromancer212VR
+VelvetValery
