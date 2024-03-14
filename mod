@@ -1,6 +1,5 @@
 AdmiralMidnight
 AmtrakFlareon
-AvaliOfChaos
 Betty The Bat
 dantdmjr67
 KakashiFlame
