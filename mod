@@ -2,7 +2,6 @@ AdmiralMidnight
 AmtrakFlareon
 ASnugglyBirb
 Betty The Bat
-CTGamez
 Hockey Borealis
 KakashiFlame
 kalite
