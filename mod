@@ -6,7 +6,6 @@ Hockey Borealis
 KakashiFlame
 Kal0Sapphire
 Kitarra_Fox ΘΔ
-Moca_Awtter_
 Naafiri
 Nightmarestar_1
 NightWingWolf
